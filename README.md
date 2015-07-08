@@ -1,1 +1,5 @@
-# gh-for-developers-july
+# GitHub for Developers
+
+*West Chester Ohio
+* July 
+* 
